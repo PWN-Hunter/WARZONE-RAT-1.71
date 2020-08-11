@@ -1,3 +1,6 @@
+## Am not responsible for youre actions, you are!
+## Mina ei ole süüdi sinu tegude pärast, sina oled!
+
 WARZONE RAT 1.71 Native C++ Remote Administration Trojan CRACKED by UNKNOWN
 
 - Automatic Download and Execute
